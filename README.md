@@ -48,8 +48,7 @@ What’s next?
 The app is still in development, but I’m eager to deploy it soon. Stay tuned for updates!
 
 I’m excited about this project and can’t wait for you all to try it out.
-
-GitHub: https://lnkd.in/d2yWkPRN
+linkedin : https://www.linkedin.com/in/kaushik-pandav-41b433228/
 
 
 Thanks for giving your valuable time 
